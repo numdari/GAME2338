@@ -14,10 +14,10 @@
 > _Answer:_ The game is geared towards Everyone. The controls are easy and the story/theme are plain and direct. The only problem with the balance is that the difficulty ramps up a little too quickly for younger kids. To combat this you would need to farm the lower levels to get enough funds to buy ammunition for the higher levels. This is not something the younger impatient kids are used to. So I would probably say that this should be labeled for 10+.
 
 **Question:** Does the timing of this game appear to be about right for this type of game?
-> _Answer:_ Your answer here
+> _Answer:_ The timing the games theme/story mixed with the assets used to develop the levels seems to be well for this type of game. As for the timing of the game controls, they are spot on and go well with the timing of the enemies.
 
 **Question:** During gameplay did the mechanics and theme go together and reinforce each other?
-> _Answer:_ Your answer here
+> _Answer:_ The mechanics and theme went well in hand with each other. The theme was a defend the castle, played by a sleeping young boy, against the forces of evil, played by fragments of nightmares. You play a teddy bear armed with guns and such to defend with, which is a projectile weapon usually used in games of this genre.
 
 **Question:** Did you have fun playing this game?
 > _Answer:_ I did have some fun playing this game. I found that I was slightly annoyed with how the targeting of the creatures was too specific, but it did not actually detract from the game.
